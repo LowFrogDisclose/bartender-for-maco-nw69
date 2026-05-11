@@ -1,4 +1,4 @@
-
+Get the ultimate Bartender for macOS service with Bartender for macOS exclusive Service: cloud-sync & memory-optimization. Featuring cloud-sync and memory-optimization, it's the
 
 
 
